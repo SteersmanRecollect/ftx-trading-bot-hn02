@@ -1,4 +1,4 @@
-# 
+# Get the ultimate ftx trading bot with elite ftx trading bot Strategy | position-sizing + high-frequency. Featuring position-sizing and high-frequency, it's the best choice for
 
 
 
